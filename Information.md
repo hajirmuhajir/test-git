@@ -7,4 +7,4 @@
 
 3. Muhajir
 
-4. Kelompok
+4. Muhajir
